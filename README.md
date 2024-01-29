@@ -1,1 +1,1 @@
-This just a randome code I created while practicing please dont judge it
+This are just random projects I create while learning. As I am an beginner please dont judge it!
